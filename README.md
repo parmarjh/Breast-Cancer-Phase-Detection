@@ -40,11 +40,8 @@ Not Available Now
 
 | Name | Connect With Us | Or Drop A Mail |
 | ------ | ------ |------ |
-| Shrutina Agarwal | [LinkedIn](https://www.linkedin.com/in/shrutina-agarwal-664657150/) | *shrutina.agarwal10@gmail.com* |
-| Gitesh Jain | [LinkedIn](https://www.linkedin.com/in/gitesh1996/) | *giteshjain844@gmail.com* |
-| Tuhin Das | [LinkedIn](https://www.linkedin.com/in/tuhind/) | tuhin.loves.federer@gmail.com |
-| Amitrajit Bose | [LinkedIn](https://www.linkedin.com/in/amitrajitbose/) | *amitrajitbose@gmail.com* |
-| Sivangi Tandon | [LinkedIn](https://in.linkedin.com/in/sivangi-tandon-40a05016a) | *sivangitandon@gmail.com* |
+| Jatin Parmar | [LinkedIn](https://www.linkedin.com/in/jhparmar/) | *parmarjatin4911@gmail.com* |
+
 
 
 ### Contribute
